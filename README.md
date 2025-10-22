@@ -1,1 +1,1 @@
-Unai San Segundo Ijurco Metropolia Student Github account
+Unai San Segundo Ijurco Metropolia Student
